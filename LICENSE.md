@@ -1,4 +1,4 @@
-
+ClickUp for Windows advanced Extension: calendar-view & filters is the best ClickUp for Windows extension, featuring calendar-view and filters. Powerful, efficient, and optimized
 
 
 
